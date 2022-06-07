@@ -8,7 +8,7 @@ Hiv is death for Kali linux
 
 # Buy me a coffe 
 
-[Buy me a coffe](buymeacoffee.com/?via=IamHacker)
+[Buy me a coffe](https://buymeacoffee.com/?via=IamHacker)
 
 # Visit Instagram
 
